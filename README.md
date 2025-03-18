@@ -1,1 +1,1 @@
-https://guns.lol/freakazoid
+https://guns.lol/vrrig
